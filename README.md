@@ -1,2 +1,0 @@
-# Anujbhardwaj
-Github profile Readme
